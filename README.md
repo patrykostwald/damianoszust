@@ -1,0 +1,1 @@
+Otrzeżenie przed oszustami.
